@@ -12,3 +12,4 @@ https://itechhacks.com
 https://www.defcon.org/
 https://hackingvision.com
 https://itechhacks.com/
+https://beginners.re/
