@@ -19,3 +19,5 @@ https://www.nulled.to
 http://gen.lib.rus.ec/
 https://pentesterlab.com/
 https://www.pentesteracademy.com/
+https://onlinesim.ru
+http://bbs.hh010.com
